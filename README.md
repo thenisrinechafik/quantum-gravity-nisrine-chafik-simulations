@@ -44,8 +44,7 @@ This repository is released for academic and research purposes. All original the
 Contact
 
 For collaborations, academic inquiries, or clean document access:
-**Email**: nisrine.physics@protonmail.com  
-**Website**: Coming soon
+**Email**: thenisrinechafik@gmail.com
 
 ---
 
